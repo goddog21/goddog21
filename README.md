@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @goddog21
 - 👀 I’m interested in fnaf and playing games
-- 🌱 I’m currently learning how to code
+- 🌱 I’m currently getting better at pixl art
 - 📫 How to reach me: you can shout at me on gamejolt.
